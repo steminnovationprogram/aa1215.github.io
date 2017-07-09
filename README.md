@@ -8,4 +8,11 @@ In my free time I love reading Scientific American articles, running, spending t
 
 ## Currently I am...
 
-### Reading: Slaughterhouse Five
+### Reading
+Spillover
+
+### Learning
+Unity 
+
+### Listening To
+Calvin Harris
