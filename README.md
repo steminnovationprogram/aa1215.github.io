@@ -1,4 +1,4 @@
-### Introduction
+## Introduction
 
 Hi, I'm Akshara! I'm a rising senior at the [Liberal Arts and Science Academy](http://lasahighschool.org) in Austin, Texas. I've developed a passion for computer science, education, and women’s empowerment throughout high school. 
 
